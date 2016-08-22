@@ -1,1 +1,0 @@
-Ned wins the game of thrones and rules the Seven Kingdoms happily every after.
